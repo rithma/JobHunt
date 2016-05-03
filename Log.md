@@ -13,6 +13,16 @@ my fucking job hunt log
       
 5/3    NBC Universal
 
+	Thank you, Etienne Stehelin, for your submission.
+	
+	
+You have successfully submitted to the following job(s):
+
+Audio Mixer, International Networks, 27318BR
+
+NBCUniversal Talent Acquisition
+
+
       
       
 Ideas:
