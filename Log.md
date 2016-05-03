@@ -8,5 +8,14 @@ my fucking job hunt log
 5/3    Netflix    http://www.simplyhired.com/job/studio-av-engineer-job/netflix/rtvwla6oxi?cid=jyzenhnenzmnvkzfsavjpoetqetzbrge
       Studio AV engineer
       
+5/3    Lynda.com     Manager, Audio Engineering
+      through Lynda careers website. 
+      
+5/3    NBC Universal
+
+      
+      
+Ideas:
+Medical Electronics Technician*???
       
       
