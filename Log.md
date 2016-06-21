@@ -15,6 +15,12 @@ my fucking job hunt log
 
 	Thank you, Etienne Stehelin, for your submission.
 	
+6/20 	Applied Minds
+rithers@gmail.com
+Uenhw35!
+
+AV Design Engineer
+	
 	
 You have successfully submitted to the following job(s):
 
