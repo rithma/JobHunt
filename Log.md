@@ -23,6 +23,10 @@ Uenhw35!
 6/21	Fox Networks
 Contract Broadcast Maintenance Engineer-FOX0002TU at 21st Century Fox
 
+6/22	CBS
+You've successfully applied for this job:
+Position: Audio Mixer/A1 - 403(g) Technician
+
 
 	
 
