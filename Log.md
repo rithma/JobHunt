@@ -12,21 +12,19 @@ my fucking job hunt log
       through Lynda careers website. 
       
 5/3    NBC Universal
-
-	Thank you, Etienne Stehelin, for your submission.
+You have successfully submitted to the following job(s):
+Audio Mixer, International Networks, 27318BR
+NBCUniversal Talent Acquisition	Thank you, Etienne Stehelin, for your submission.
 	
-6/20 	Applied Minds
+6/20 	Applied Minds	AV Design Engineer
 rithers@gmail.com
 Uenhw35!
 
-AV Design Engineer
-	
-	
-You have successfully submitted to the following job(s):
+6/21	Fox Networks
+Contract Broadcast Maintenance Engineer-FOX0002TU at 21st Century Fox
 
-Audio Mixer, International Networks, 27318BR
 
-NBCUniversal Talent Acquisition
+	
 
 
       
