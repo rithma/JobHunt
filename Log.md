@@ -11,12 +11,12 @@ my fucking job hunt log
 5/3    Lynda.com     Manager, Audio Engineering (used for edd)
       through Lynda careers website. 
       
-5/3    NBC Universal
+5/3    NBC Universal			(edd used)
 You have successfully submitted to the following job(s):
 Audio Mixer, International Networks, 27318BR
 NBCUniversal Talent Acquisition	Thank you, Etienne Stehelin, for your submission.
 	
-6/20 	Applied Minds	AV Design Engineer
+6/20 	Applied Minds	AV Design Engineer (edd used)
 rithers@gmail.com
 Uenhw35!
 
