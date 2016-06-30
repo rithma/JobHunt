@@ -21,7 +21,7 @@ rithers@gmail.com
 Uenhw35!
 
 6/21	Fox Networks
-Contract Broadcast Maintenance Engineer-FOX0002TU at 21st Century Fox
+Contract Broadcast Maintenance Engineer-FOX0002TU at 21st Century Fox (edd used)
 
 6/22	CBS
 You've successfully applied for this job:
