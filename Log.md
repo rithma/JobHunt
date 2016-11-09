@@ -27,8 +27,10 @@ Contract Broadcast Maintenance Engineer-FOX0002TU at 21st Century Fox (edd used)
 You've successfully applied for this job:
 Position: Audio Mixer/A1 - 403(g) Technician
 
+10/16/2016
+HIRED....
+full time Senior Audio Mixer,  Fox Sports 1440 Sepulveda
 
-	
 
 
       
